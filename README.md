@@ -1,0 +1,1 @@
+              UGULAMALI STRİNG
